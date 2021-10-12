@@ -1,2 +1,0 @@
-# hacktoberknsjcnsc
-vmldmvlkdsm
